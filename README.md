@@ -2,7 +2,7 @@
 
 队伍：🔱🏎️🏁⚡️🥬🤯🔥⚔️☯️👮‍♀️
 
-团队成员：[G6](./https://github.com/GANGE666)、[Pyro](https://github.com/Le0nn)、[Xrosheart](https://github.com/xros-wyz)、[huawanbibi](https://github.com/huawanbibi)
+团队成员：[G6](https://github.com/GANGE666)、[Pyro](https://github.com/Le0nn)、[Xrosheart](https://github.com/xros-wyz)、[huawanbibi](https://github.com/huawanbibi)
 
 名次：
 
